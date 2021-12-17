@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Elisa Colin
+- 👀 I’m interested in recruiting the best IT talents around the world.
+- 🌱 I’m currently learning how is the best way to offer new job opportunities for IT talents.
+- 💞️ I’m looking to collaborate on all the IT world to offer new career opportunities and develop your skills.
+- 📫 How to reach me / you can contact me at elisa.colin@cevalogistics.com or via Whatsapp & Telegram at +52 55 37 00 75 34
